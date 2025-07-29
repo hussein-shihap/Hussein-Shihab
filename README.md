@@ -15,7 +15,7 @@ One example is **CodeBiblio**, a library management system I built from scratch 
 🌍 I'm based in **Lebanon** and of **Syrian nationality**. I speak English fluently, and I take pride in my strong **leadership**, **influence**, and **effective communication** skills.
 
 📫 Let's connect:  
-[LinkedIn](#) | 📫 Email: [H.Shihab1@outlook.com](mailto:H.Shihab1@outlook.com)
+[LinkedIn](https://www.linkedin.com/in/hussein-shihab-b978b4377)| 📫 Email: [H.Shihab1@outlook.com](mailto:H.Shihab1@outlook.com)
 
 ---
 
